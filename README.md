@@ -1,1 +1,1 @@
-https://YogiDwyAlQurniawan.github.io/a
+YogiDwyAlQurniawan.github.io/a
