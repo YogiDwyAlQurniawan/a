@@ -1,1 +1,1 @@
-yogidwyalqurniawan.github.io/a
+https://yogidwyalqurniawan.github.io/a
